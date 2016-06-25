@@ -15,10 +15,10 @@ pada kota-kota besar di Indonesia.
 
 
 ## Waktu
-
+25-26 Maret 2017
 
 ## Lokasi
-
+Universitas Sumatera Utara, Medan
 
 ## Pemateri
 
